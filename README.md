@@ -1,0 +1,1 @@
+# penemuan-yang-efektif
